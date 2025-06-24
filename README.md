@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://chiguaqunzhongde.pages.dev/">7吃瓜网新最热门入口</a>
 
-点击访问：<a href="https://hj-170.pages.dev/">Twitter中文版瓜网官方网站/a>
+点击访问：<a href="https://hj-170.pages.dev/">Twitter中文版瓜网官方网站</a>
 
 点击访问：<a href="https://hls-15.pages.dev/">海角黑料最新网站</a>
 
